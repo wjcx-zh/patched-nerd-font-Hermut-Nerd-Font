@@ -1,0 +1,1 @@
+# patched-nerd-font-Hermut-Nerd-Font
